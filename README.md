@@ -1,1 +1,0 @@
-# wd-nolan_safiraa
